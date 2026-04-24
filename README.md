@@ -5,4 +5,22 @@
 ## Do you know what real peace of mind is? It’s  comparing your failures with the success of others. 🤣🤣
 ## You may feel like a failure, and think you are too late. But it doesn’t matter—wake up and realize that God has given you a second chance. Don’t make the same mistakes again.🍀
 <i>You know, after the rain the sun feels warmer and brighter than before. So chase excellence, and let every setback become your strength.🎭</i>
+---
 
+<i>These days are but the embers 😔 brighter fires ignite,
+
+I’ll bear this heavy present to claim my destined height.
+
+Alone I tread the path where time and shadows fall,
+
+Yet every memory’s mark becomes the vow that conquers all.</i>
+
+---
+<i>Not just these days, for more days lie ahead,
+
+With these I’ll journey to that future day.
+
+Alone I walk along the path of time,
+
+In every moment, memories leave their trace.
+</i>
