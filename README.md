@@ -24,3 +24,10 @@ Alone I walk along the path of time,
 
 In every moment, memories leave their trace.
 </i>
+---
+
+<i>
+  Oh God, I don’t know why all this has happened to me. I am still remaining patient and holding onto my faith in You. I know I am not perfectly pious or a regular worshiper, but I am a true believer in You. Please show me hope and a way forward in life. You have given me courage and intelligence, but why haven’t You provided enough resources or a supportive environment? Whenever I try to begin something, obstacles seem to surround me. I am hurt and broken, yet I endure it all silently. Please, God, help me rebuild my life and overcome these obstacles.
+</i>
+
+---
