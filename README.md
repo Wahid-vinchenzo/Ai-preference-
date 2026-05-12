@@ -31,3 +31,12 @@ In every moment, memories leave their trace.
 </i>
 
 ---
+<i>
+Serena Williams once said that the true mark of a champion is the ability to rise after a fall. Anyone can celebrate when things are going well, when luck is on their side, and the path is easy. But the real test comes when you are falling behind, when things are crumbling, and when everyone thinks it’s over. In that moment, what do you do? Do you give up, or do you stand your ground? Those who surrender are ordinary, but those who fight their way back from the brink are the true champions.
+</i></br>
+</br>
+</br>
+<i>
+The reality is, Serena herself trailed in countless matches, battled through injuries, and faced relentless criticism—yet she rose every single time to create history. Life is no different. Sometimes you win easily; sometimes you lose hard. But those who keep fighting even after being pushed back, those who adapt their strategy and keep their mental grit, are the ones who ultimately win. So, do not give up in the face of defeat. This is your time to prove how strong you are. Remember, the sweetest victories come after the toughest comebacks. Rise like a champion.
+</i>
+---
